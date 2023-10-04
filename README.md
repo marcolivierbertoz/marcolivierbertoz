@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @marcolivierbertoz
-- I am currently follwong a Master Porgram with ZHAW in Applied Computational Life Sciences
 - 👀 I’m interested in Science, especially in Life Sciences and Space Sciences
 - 🌱 I’m currently learning different topics by myself.
 - 📫 How to reach me, search me on LinkedIn and write me a message if you want (Please no SPAM)
